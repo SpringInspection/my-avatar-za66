@@ -1,4 +1,4 @@
-
+murderers vs sheriffs 2 Scripts advanced is the best murderers vs sheriffs 2 Script, featuring auto-collect and no clip. Safe and powerful for all
 
 
 
